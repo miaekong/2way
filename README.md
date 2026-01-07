@@ -3,6 +3,10 @@
 
 깃 수업한다
 
+
+
+내가 보낸다아!
+
 안녕하세요 // 조영제
 
 
@@ -14,3 +18,4 @@ Wait a minute, 이게 뭐지?
 네 모든 게 내 마음에 달라붙어버려 boy 
 We're magnetized 인정할게
 This time I want 
+
